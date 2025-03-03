@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Felipe;
 - 🛠 I'm graduating in materials engineering
-- 👀 I’m interested in rock 'n roll, heavy metal and action rpg games;
+- 👀 I’m interested in One Piece, Diablo 2 Resurrected, rock 'n roll, heavy metal and action rpg games;
 - 🌱 I’m currently learning to code python;
 - 📫 You can find me on instagram @lipecmarcolino, also, my linkein account is "Felipe Marcolino Carvalho Costa" and I'm open to study and working partnerships
 
